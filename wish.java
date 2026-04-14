@@ -1,1 +1,1 @@
-Uruguay jana hai
+Uruguay gaya
